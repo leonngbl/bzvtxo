@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>社保基金新进汽车座椅龙头，布局汽车轻量化赛道</h3><br><p>中国平安权重护盘，大金融板块托底A股指数。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>中药配方颗粒政策放开，中药板块集体走强</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>国产EDA工具实现全流程覆盖，半导体软件标的走强</h3><br><p>新能源汽车销量上半年突破550万辆，市场渗透率达48%。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>全球无人机市场规模突破1500亿美元，行业应用爆发</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>吉利汽车新能源转型路径：传统车企电动化的成功案例</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注</h3><br><p>全国骑行赛事超千场，骑行运动参与人数破5000万。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>车规级芯片国产替代加速，汽车半导体板块走强</h3><br><p>中超联赛场均上座人数突破2.5万，球市全面回暖。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>国内高端旅游产品走俏，定制游订单同比增长90%</h3><br><p>中非合作论坛新举措落地，千个合作项目集中启动。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>www.ahhaiquan.cn
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据</h3><br><p>全国碳捕集利用与封存项目年处理能力突破1500万吨。<br><br> | 来源：<code>www.3excel.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>www.81988888.cn
+</code></p><br><br><h3>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人</h3><br><p>万华化学MDI技术优势：化工龙头的全产业链协同价值。<br><br> | 来源：<code>zhongyichufang.cn
+</code></p><br><br><h3>比亚迪AH股同步走强，新能源整车板块领涨两市</h3><br><p>全国淮河生态经济带建设推进，流域水质优良比例达95%。<br><br> | 来源：<code>muzhien.cn
+</code></p><br><br><h3>全球跨境直接投资回升至1.5万亿美元，流向绿色产业</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>jiezhishan.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>比亚迪AH股同步走强，新能源整车板块领涨两市。<br><br> | 来源：<code>qinjin365.cn
+</code></p><br><br><h3>中国高尔夫球业余选手夺得职业赛事冠军，人才储备充足</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>siqiyes.cn
+</code></p><br><br><h3>全面降准叠加定向降息，宽货币向宽信用传导加速</h3><br><p>全球教育科技市场规模突破4000亿美元，线上教育持续普及。<br><br> | 来源：<code>siqixue.cn
