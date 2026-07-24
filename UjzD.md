@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>宇通客车海外出口翻倍，前三季度业绩预增超50%</h3><br><p>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破。<br><br> | 来源：<code>https://shenshiyouxi.com.cn
+</code></p><br><br><h3>全球绿色建筑市场规模突破3万亿美元，低碳建筑普及</h3><br><p>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破。<br><br> | 来源：<code>https://shenshiyouxidaohang.com.cn
+</code></p><br><br><h3>沪硅产业硅片国产替代：12英寸大硅片的产能释放逻辑</h3><br><p>机构席位大额买入拓普集团9200万，零部件龙头获长线布局。<br><br> | 来源：<code>https://shenshiyouxituijian.com.cn
+</code></p><br><br><h3>杭州西湖暑期日均客流超30万，智慧景区系统保障游览秩序</h3><br><p>隆基绿能成本优势解析：光伏龙头如何持续领跑行业。<br><br> | 来源：<code>https://shenshiyouxiwangzhan.com.cn
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>中国神华创阶段新高2.8%，高股息属性持续获资金追捧。<br><br> | 来源：<code>https://shenye-manhua.com
+</code></p><br><br><h3>定向降息支持绿色电力，绿电运营板块获定向利好</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>https://shequhaijiao.cn
+</code></p><br><br><h3>铜版纸价格单月上涨7%，造纸细分板块迎来行情</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>https://shequhaijiao.com.cn
+</code></p><br><br><h3>AI智能写作工具普及，内容创作者产出效率提升2倍</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>https://shijiebei-duqiu.com.cn
+</code></p><br><br><h3>降准资金定向支持绿色能源，光伏风电板块获流动性利好</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>https://shijiebei-mai-qiu.com.cn
+</code></p><br><br><h3>全国全民阅读指数达72分，人均年阅读纸质书超8本</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>https://shiliushequ.cn
+</code></p><br><br><h3>中际旭创再创阶段新高，光模块赛道高景气延续</h3><br><p>大模型在电商领域应用，AI生成商品详情页效率提升10倍。<br><br> | 来源：<code>https://shinu.com.cn
+</code></p><br><br><h3>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局</h3><br><p>2026年体育强国建设成效显著，全民健身与全民健康深度融合。<br><br> | 来源：<code>https://shipin-zaixianguankan.com.cn
+</code></p><br><br><h3>国内政策性降息落地，宽信用进程加速推进</h3><br><p>休闲食品开启涨价潮，食品加工板块盈利弹性释放。<br><br> | 来源：<code>https://shipin91.cn
+</code></p><br><br><h3>白酒行业产业政策引导，高端白酒板块集体上涨</h3><br><p>京东言犀大模型供应链版上线，助力电商降本增效。<br><br> | 来源：<code>https://shipinchengren.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>长安汽车涨停封板，深蓝系列车型销量破万。<br><br> | 来源：<code>https://shipinhuanggua.cn
+</code></p><br><br><h3>中国中车异动拉升，低位补涨行情的参与思路</h3><br><p>全国全民健身日活动覆盖超亿人次，群众体育热情高涨。<br><br> | 来源：<code>https://shipinmogu.com.cn
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>东方财富放量大涨，券商板块异动激活市场人气。<br><br> | 来源：<code>https://shipinxiangjiao.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>中俄双边贸易额上半年突破1200亿美元，创历史新高。<br><br> | 来源：<code>https://shixiongashixiong.com.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨。<br><br> | 来源：<code>https://shoujihuangyou.com.cn
+</code></p><br><br><h3>全国城市节水型社会建设达标率达85%，用水效率提升</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>https://shuiguopaijieshuozaixianguankan.com.cn
