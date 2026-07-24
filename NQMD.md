@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>保险资管举牌绿电运营标的，长期配置价值获机构认可</h3><br><p>特变电工新能源多赛道布局：从输变电到新能源的转型。<br><br> | 来源：<code>https://galgamewangzhan.com.cn
+</code></p><br><br><h3>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注</h3><br><p>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求。<br><br> | 来源：<code>https://galgamexiazai.com.cn
+</code></p><br><br><h3>全国红色旅游暑期人次破3亿，年轻人占比超60%</h3><br><p>工业互联网平台落地，工业数字化标的全线拉升。<br><br> | 来源：<code>https://galgameziyuan.com.cn
+</code></p><br><br><h3>固德威户用储能爆发，单季业绩预告超预期</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https://gao-liujia.com.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>中国游泳队世锦赛斩获5金，打破2项世界纪录领跑泳坛。<br><br> | 来源：<code>https://gaochaopenshui.net.cn
+</code></p><br><br><h3>养老服务体系建设政策，养老产业标的全线走强</h3><br><p>2026年文旅市场全面繁荣，文化自信融入大众日常生活。<br><br> | 来源：<code>https://gaoqing-wuma.com.cn
+</code></p><br><br><h3>存量房贷利率下调后居民消费回升，旅游酒店板块受益</h3><br><p>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷。<br><br> | 来源：<code>https://gaoxiao-paihangbang.com.cn
+</code></p><br><br><h3>敬畏市场：无论你研究得多深，市场永远有你预料不到的变化</h3><br><p>AI实时翻译耳机普及，跨语言沟通障碍彻底打破。<br><br> | 来源：<code>https://gay-pian.com.cn
+</code></p><br><br><h3>北向资金连续增持养老产业标的，银发经济赛道获外资流入</h3><br><p>人民币汇率阶段性贬值，出口导向型标的异动。<br><br> | 来源：<code>https://gaypian.com.cn
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>https://gaypian.net.cn
+</code></p><br><br><h3>甘肃建投涨超3.0%，一带一路西北基建项目推进</h3><br><p>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流。<br><br> | 来源：<code>https://gcxokw.cn
+</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://gebulindedongku.com.cn
+</code></p><br><br><h3>医美监管政策优化，医美消费标的全线拉升</h3><br><p>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团。<br><br> | 来源：<code>https://geiliziyuanku.net.cn
+</code></p><br><br><h3>重庆洪崖洞暑期客流创新高，网红打卡点日均接待超15万</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://get-kaiyun-app.com.cn
+</code></p><br><br><h3>磷肥价格单月上涨8%，磷化工龙头盈利改善</h3><br><p>全国智慧健身器材普及至社区，运动数据实时上传健康平台。<br><br> | 来源：<code>https://gnxzot.cn
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速。<br><br> | 来源：<code>https://go-bb-sports.com.cn
+</code></p><br><br><h3>上汽集团海外市场布局：传统车企出口的长期增长逻辑</h3><br><p>中国神华创阶段新高2.8%，高股息属性持续获资金追捧。<br><br> | 来源：<code>https://go-caoliushequ.cn
+</code></p><br><br><h3>中国男子举重队世锦赛打破5项世界纪录，统治力依旧</h3><br><p>招商公路涨超2.4%，公路运营龙头价值凸显。<br><br> | 来源：<code>https://go-fuliji.com.cn
+</code></p><br><br><h3>洋河股份梦之蓝品牌升级：次高端赛道的份额扩张逻辑</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析。<br><br> | 来源：<code>https://go-hg-sports.com.cn
+</code></p><br><br><h3>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带</h3><br><p>一带一路订单释放：中字头基建的估值重塑空间解析。<br><br> | 来源：<code>https://go-jinmantiantang.com.cn
