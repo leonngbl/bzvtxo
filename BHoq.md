@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分58秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>糖果产品价格上调6%，休闲食品全产业链景气回升。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>低空经济发展规划出台，低空经济标的拉升</h3><br><p>隆基绿能涨超5.7%，HPBC组件出货量爆发。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>2026年美丽中国建设成效显著，绿色发展底色更加鲜明</h3><br><p>外资机构席位净买入国电南瑞1.6亿，电网设备龙头获外资加仓。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>2026年文旅市场全面繁荣，文化自信融入大众日常生活</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>新能源汽车出口数据翻倍，整车出口标的集体异动。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>藏羚羊种群数量突破30万只，从濒危物种恢复至无危</h3><br><p>机构专用席位净买入韦尔股份1.5亿，CIS芯片龙头获长线加仓。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>东方财富互联网券商生态：流量变现的长期成长逻辑</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>金风科技异动拉升4.5%，海上风电装机量超预期</h3><br><p>浪潮信息高位震荡，算力主线的分歧与机会解析。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>量子通信标的启动申购，干线网络建设订单同比翻倍</h3><br><p>国产EDA工具实现全流程覆盖，半导体软件标的走强。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>国产光刻机交付突破，半导体设备板块全线大涨。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>中国跳水队世锦赛包揽全部13金，延续梦之队统治力</h3><br><p>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒</h3><br><p>浪潮信息AI服务器出货超预期，单季业绩预增150%。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>大模型在航空领域应用，飞行模拟训练效率提升30%</h3><br><p>教育部新增37个高校专业，聚焦人工智能、生物医药等前沿领域。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>国内AI生成短视频用户破5亿，短视频行业迎来生产变革。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>宁德时代客户结构优势：全球主流车企的深度绑定逻辑</h3><br><p>泸州老窖放量上涨4.4%，国窖1573批价稳步上行。<br><br> | 来源：<code>www.hrnhug.cn
+</code></p><br><br><h3>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>西藏暑期游热度创新高，进藏游客人次同比增长130%。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧</h3><br><p>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>streamnet-chain.com
