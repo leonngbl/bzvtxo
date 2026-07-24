@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分08秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>科大讯飞高位震荡，分歧阶段的关键位与风控思路</h3><br><p>机构+北向合力买入北方稀土2.7亿，稀土标的获资金布局。<br><br> | 来源：<code>https://chuanmeimadou.cn
+</code></p><br><br><h3>宇通客车放量上涨3.8%，海外客车出口数据亮眼</h3><br><p>全国珠江流域生态补水工程启动，流域生态流量保障达标。<br><br> | 来源：<code>https://chuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>四川路桥一带一路订单落地，前三季度业绩预增超40%</h3><br><p>基金公司集体到访机器人控制器标的，国产控制器市占率提升。<br><br> | 来源：<code>https://chuniaoapp.cn
+</code></p><br><br><h3>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东</h3><br><p>华为Mate70销量破千万，消费电子产业链全线异动。<br><br> | 来源：<code>https://chutianbenzi.com.cn
+</code></p><br><br><h3>全国候鸟栖息地保护网络建成，每年迁徙候鸟超千万只</h3><br><p>全国雪豹种群数量突破5000只，高原生态系统健康稳定。<br><br> | 来源：<code>https://chuyindao.com.cn
+</code></p><br><br><h3>超180家机构到访汽车轻量化标的，一体化压铸产能释放</h3><br><p>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓。<br><br> | 来源：<code>https://clshequ.cn
+</code></p><br><br><h3>美联储降息后美元指数走弱，大宗商品价格迎来反弹</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>https://clsq.cn
+</code></p><br><br><h3>降准资金定向支持三农，农业板块迎来流动性利好</h3><br><p>韦尔股份CIS芯片布局：图像传感器行业的周期与成长。<br><br> | 来源：<code>https://club91.cn
+</code></p><br><br><h3>音乐节市场上半年演出超500场，年轻群体消费占比超80%</h3><br><p>万科A地产行业格局：龙头房企的抗风险能力与复苏空间。<br><br> | 来源：<code>https://cn-188-sports.com.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>天然气价格季节性上涨，燃气运营板块异动。<br><br> | 来源：<code>https://cn-2026worldcup-buy.com
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>https://cn-2026worldcup-official.com
+</code></p><br><br><h3>全国居民储蓄存款增速放缓，资金向消费和投资领域转移</h3><br><p>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场。<br><br> | 来源：<code>https://cn-9170-jinsha.com
+</code></p><br><br><h3>北京环球影城暑期单日客流破5万，周边酒店一房难求</h3><br><p>保险资管扎堆调研汽车芯片标的，MCU芯片国产替代率突破50%。<br><br> | 来源：<code>https://cn-ab-tiyu.com.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>https://cn-bandao-sports.com.cn
+</code></p><br><br><h3>外资资管集中调研跨境电商龙头，出口增速数据首次公开</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>https://cn-bb-tiyu.com.cn
+</code></p><br><br><h3>晶澳科技涨超4.8%，光伏组件出口数据亮眼</h3><br><p>体育产业消费刺激政策，体育消费标的全线异动。<br><br> | 来源：<code>https://cn-biyi-sports.com.cn
+</code></p><br><br><h3>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市</h3><br><p>比亚迪垂直整合优势：供应链自主可控下的抗风险能力。<br><br> | 来源：<code>https://cn-btiyu-web.com.cn
+</code></p><br><br><h3>恒瑞医药涨超5%，创新药管线进入收获期</h3><br><p>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密。<br><br> | 来源：<code>https://cn-chengrenmanhua.com.cn
+</code></p><br><br><h3>研学旅行扶持政策，教育旅游板块集体上涨</h3><br><p>全国绿色出行创建行动推进，超百个城市建成绿色交通体系。<br><br> | 来源：<code>https://cn-haijiaoshequ.com.cn
+</code></p><br><br><h3>固态电池试点线投产，固态电池产业链集体异动</h3><br><p>三一重工突破半年线，中期趋势逐步转强。<br><br> | 来源：<code>https://cn-haohaidong.com.cn
