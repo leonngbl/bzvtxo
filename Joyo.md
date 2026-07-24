@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分51秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://yazhouyi.com.cn
+</code></p><br><br><h3>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速</h3><br><p>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进。<br><br> | 来源：<code>https://yazhouyiji.com.cn
+</code></p><br><br><h3>海绵城市建设推广，海绵城市板块集体上涨</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>https://yazhouyijiriben.com.cn
+</code></p><br><br><h3>调味品开启集体涨价，食品板块盈利迎来修复</h3><br><p>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益。<br><br> | 来源：<code>https://yazhouyiqu.com.cn
+</code></p><br><br><h3>中国女足亚洲杯夺冠，时隔16年重回亚洲之巅</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>https://yazhouyiquerqu.com.cn
+</code></p><br><br><h3>哪吒汽车涨超7.3%，下沉市场份额持续提升</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>https://yazhouzipai.org.cn
+</code></p><br><br><h3>海尔智家高端化布局：白电龙头的品牌溢价能力</h3><br><p>游资顶级席位打板亨通光电5400万，海缆标的获热炒。<br><br> | 来源：<code>https://yazhouzonghewang.com.cn
+</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>央行下调MLF利率10BP，货币政策宽松力度加大。<br><br> | 来源：<code>https://yeye-lu.com.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>房贷利率动态调整机制优化，重点城市房贷利率进一步下行。<br><br> | 来源：<code>https://yi-qicao.com.cn
+</code></p><br><br><h3>外资持续流入亿纬锂能，储能龙头外资持仓占比突破4%</h3><br><p>宇通客车全球客车龙头优势：新能源客车的全球份额扩张。<br><br> | 来源：<code>https://yiben-dao.com.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>算力基础设施建设指导意见，算力板块全线走强。<br><br> | 来源：<code>https://yiduiyi-shipin-app.com.cn
+</code></p><br><br><h3>招商银行放量上涨3.0%，净息差边际企稳</h3><br><p>西安大唐不夜城暑期日均客流超20万，沉浸式文旅成爆款。<br><br> | 来源：<code>https://yihao-ent-pro.com.cn
+</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>https://yin-jiao.com.cn
+</code></p><br><br><h3>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑</h3><br><p>基金公司集体到访机器人控制器标的，国产控制器市占率提升。<br><br> | 来源：<code>https://yin-qi.com.cn
+</code></p><br><br><h3>汽车数据安全管理新规，汽车软件板块集体上涨</h3><br><p>天然气价格季节性上涨15%，燃气运营板块迎来行情。<br><br> | 来源：<code>https://yin-se-shipin.com.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录。<br><br> | 来源：<code>https://yin-wen-se-shuo.com
+</code></p><br><br><h3>双汇发展异动拉升2.9%，肉制品盈利边际改善</h3><br><p>中国男子体操队世锦赛团体夺冠，重回世界巅峰。<br><br> | 来源：<code>https://yin-wen.com.cn
+</code></p><br><br><h3>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善</h3><br><p>芯片价格开启涨价潮，半导体板块盈利迎来修复。<br><br> | 来源：<code>https://yindi-jia.com.cn
+</code></p><br><br><h3>宝钢股份企稳回升，低位标的的补涨机会分析</h3><br><p>正邦科技债务重组：养殖企业困境反转的案例解析。<br><br> | 来源：<code>https://yinghuakanfan.com.cn
+</code></p><br><br><h3>外资机构席位净买入先导智能8600万，锂电设备龙头加仓</h3><br><p>全国大学生就业帮扶行动启动，国企新增岗位超80万。<br><br> | 来源：<code>https://yinghuashipinwang.com.cn
