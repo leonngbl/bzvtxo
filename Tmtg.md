@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国围棋AI算法登顶世界，人工智能助力棋类运动发展</h3><br><p>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径。<br><br> | 来源：<code>https://wuye-chengren-shipin.com.cn
+</code></p><br><br><h3>大股东承诺6个月内不减持氢能标的，释放稳定股价信号</h3><br><p>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光。<br><br> | 来源：<code>https://wuye-chengren-wangzhan.com.cn
+</code></p><br><br><h3>华为智选新车型发布，相关合作车企单日大涨</h3><br><p>贵州茅台站稳1700元关口，白酒板块估值修复开启。<br><br> | 来源：<code>https://wuye-fuli.cn
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>小米小爱大模型升级，全场景智能互联覆盖亿级设备。<br><br> | 来源：<code>https://wuye-tingting.com.cn
+</code></p><br><br><h3>央行新增5000亿元支小再贷款，精准支持小微企业发展</h3><br><p>社保基金新进生物育种标的，布局农业科技长期成长。<br><br> | 来源：<code>https://wuyefuli.com.cn
+</code></p><br><br><h3>全国千岛湖水质保持Ⅰ类，成为重要饮用水源地标杆</h3><br><p>水利工程建设规划，水利基建板块走强。<br><br> | 来源：<code>https://wuyefuli.net.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>全国家电以旧换新政策落地，回收拆解绿色化率达100%。<br><br> | 来源：<code>https://wuyefulipian.cn
+</code></p><br><br><h3>嫦娥探月工程新任务，航天科技产业链迎来催化</h3><br><p>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势。<br><br> | 来源：<code>https://wuyefulishipin.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿</h3><br><p>长三角一体化发展新规划发布，打造世界级产业集群。<br><br> | 来源：<code>https://wuyeshipin.cn
+</code></p><br><br><h3>北京君正车载存储优势：汽车电子赛道的高景气受益标的</h3><br><p>全球航空运输业完全复苏，客运量恢复至疫情前水平。<br><br> | 来源：<code>https://wuyeshipin.net.cn
+</code></p><br><br><h3>阳光电源海外逆变器爆发，前三季度业绩预增110%</h3><br><p>恒力石化异动拉升3.8%，炼化行业盈利边际改善。<br><br> | 来源：<code>https://wuzaixianguankan.cn
+</code></p><br><br><h3>国际铜价持续上行，铜业板块标的全线异动</h3><br><p>招商银行零售银行优势：国内零售银行龙头的经营质量。<br><br> | 来源：<code>https://www-91.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>宁德时代动力电池技术：麒麟电池+M3P的技术领先性。<br><br> | 来源：<code>https://www-91.com.cn
+</code></p><br><br><h3>多模态大模型实现4K视频实时生成，10秒产出高清短视频</h3><br><p>法律大模型上线，AI辅助律师办案效率提升2倍。<br><br> | 来源：<code>https://www-91com.com.cn
+</code></p><br><br><h3>全国城市公共交通新能源化率达100%，零排放出行普及</h3><br><p>央行新增5000亿元支小再贷款，精准支持小微企业发展。<br><br> | 来源：<code>https://www-91n.com.cn
+</code></p><br><br><h3>东方财富放量大涨，券商异动下的人气激活信号</h3><br><p>恒瑞医药研发管线复盘：从仿制药龙头到创新药巨头的蜕变。<br><br> | 来源：<code>https://www-91ncom.com.cn
+</code></p><br><br><h3>中国女子冰球队世锦赛升组，重返顶级赛事行列</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>https://www17ccom.com.cn
+</code></p><br><br><h3>央行表态保持流动性合理充裕，后续政策工具储备充足</h3><br><p>海大集团涨超3.5%，饲料业务市占率稳步提升。<br><br> | 来源：<code>https://www17ccomqicao.com.cn
+</code></p><br><br><h3>美联储降息后全球流动性宽松，成长板块估值抬升</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https://www17cwang.com.cn
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期</h3><br><p>高管团队集体增持低空飞行器标的，合计增持超7000万。<br><br> | 来源：<code>https://www91com.com.cn
