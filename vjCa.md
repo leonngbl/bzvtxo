@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分23秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>百亿私募组团调研光模块企业，1.6T产品送样海外客户</h3><br><p>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠。<br><br> | 来源：<code>https://jinmantiantangmanhua.com.cn
+</code></p><br><br><h3>中印经贸合作回暖，双边贸易额同比增长15%</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>https://jinmantiantangrukou.com.cn
+</code></p><br><br><h3>全国滑板锦标赛举办，年轻选手展现街头运动活力</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>https://jinmantiantangwang.com.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>上海建工涨超2.6%，长三角基建订单回暖。<br><br> | 来源：<code>https://jinmantiantangwangye.com.cn
+</code></p><br><br><h3>药明康德CXO全球布局：全球医药研发外包的龙头价值</h3><br><p>法律大模型助力普法，AI法律咨询覆盖千万基层群众。<br><br> | 来源：<code>https://jinmantiantangwangyeban.com.cn
+</code></p><br><br><h3>特高压工程集中获批，电网设备板块全线异动</h3><br><p>调味品行业标准升级，调味品龙头板块走强。<br><br> | 来源：<code>https://jinmantiantangwangyebanlianjie.com.cn
+</code></p><br><br><h3>大秦铁路煤炭运输优势：重载铁路龙头的稳定现金流</h3><br><p>德业股份异动拉升6.8%，储能逆变器盈利超预期。<br><br> | 来源：<code>https://jinmantiantangzaixian.com.cn
+</code></p><br><br><h3>跨境支付龙头登陆港股，海外结算规模年增速超80%</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>https://jinmantiantangzaixianguankan.com.cn
+</code></p><br><br><h3>露营经济上半年市场规模突破300亿元，精致露营成为新趋势</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>https://jinmantianwang.com.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://jinmanwang.com.cn
+</code></p><br><br><h3>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放</h3><br><p>央行宣布全面降准0.5个百分点，释放长期资金超万亿。<br><br> | 来源：<code>https://jinpiantiantang.com.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>伊利股份涨超3.2%，乳制品行业需求回暖。<br><br> | 来源：<code>https://jinpingmei-new.com.cn
+</code></p><br><br><h3>游资知名席位联手买入登海种业5600万，种业标的获追捧</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>https://jinpingmei-web.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>牧原股份养殖成本下降，单季业绩预告环比扭亏。<br><br> | 来源：<code>https://jinri-tongrenku.com.cn
+</code></p><br><br><h3>降准释放长期资金支持新能源，绿电板块迎来定向利好</h3><br><p>恒力石化异动拉升3.8%，炼化行业盈利边际改善。<br><br> | 来源：<code>https://jinritong.com.cn
+</code></p><br><br><h3>中国平安涨超3.4%，寿险新业务价值增速转正</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://jinritongrenku.com.cn
+</code></p><br><br><h3>浪潮信息冲高，AI服务器需求维持高增长态势</h3><br><p>晶澳科技涨超4.8%，光伏组件出口数据亮眼。<br><br> | 来源：<code>https://jinsique.org.cn
+</code></p><br><br><h3>中国男子篮球队亚洲杯闯入决赛，时隔10年重返领奖台</h3><br><p>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升。<br><br> | 来源：<code>https://jintiantangman.cn
+</code></p><br><br><h3>农村物流体系建设规划，乡村物流标的全线异动</h3><br><p>新疆暑期游客量突破5000万人次，西部文旅市场爆发。<br><br> | 来源：<code>https://jiqing-wangzhan.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>汽车零部件赛道景气度上行：细分方向机会全梳理。<br><br> | 来源：<code>https://jiu-jiu-shipin.com.cn
