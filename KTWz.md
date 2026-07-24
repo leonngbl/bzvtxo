@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>产业基金组团调研后集中增持氢能储运龙头，合计投入超5亿</h3><br><p>NOR Flash价格上调10%，闪存芯片板块盈利弹性释放。<br><br> | 来源：<code>https://shaofubaijie.com.cn
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>https://shengshi-ll-ios.com
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>国家发改委出台促消费20条新政，重点支持汽车家电消费。<br><br> | 来源：<code>https://shenshi-youxi.com.cn
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>投资是认知的变现：你永远赚不到超出自己认知范围的钱。<br><br> | 来源：<code>https://shenshimanhua.com.cn
+</code></p><br><br><h3>数字人民币核心标的启动申购，线下场景覆盖突破亿级用户</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善。<br><br> | 来源：<code>https://shenshiyouxidaohang.com.cn
+</code></p><br><br><h3>家电以旧换新政策加码，白电板块集体反弹</h3><br><p>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好。<br><br> | 来源：<code>https://shenshiyouxiwangzhan.com.cn
+</code></p><br><br><h3>拓普集团护城河分析：汽车零部件平台型企业的长期价值</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>https://shequhaijiao.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆。<br><br> | 来源：<code>https://shijiebei-duqiu.com.cn
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会</h3><br><p>全国江豚种群数量突破2000头，长江微笑天使重现。<br><br> | 来源：<code>https://shinu.com.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>https://shipinchengren.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>时间是优秀企业的朋友：陪伴好公司成长，远比做短线暴利靠谱。<br><br> | 来源：<code>https://shipinxiangjiao.cn
+</code></p><br><br><h3>全国农业面源污染治理成效显著，化肥使用量连续11年下降</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>https://shuiguopaijieshuozaixianguankan.com.cn
+</code></p><br><br><h3>海天味业调味品渠道优势：国内调味品龙头的下沉网络</h3><br><p>企业融资成本创历史新低，制造业投资增速回升。<br><br> | 来源：<code>https://shuixian-zhibo.com.cn
+</code></p><br><br><h3>国产科幻小说海外获奖，中国想象力走向全球读者</h3><br><p>电池片价格小幅上调3%，光伏产业链盈利分配优化。<br><br> | 来源：<code>https://si-huyingyuan.com.cn
+</code></p><br><br><h3>中国国际跳棋队世锦赛夺冠，新兴智力运动实现突破</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>https://sigua-shipin.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>头部券商到访家电出海龙头，海外自主品牌占比突破40%。<br><br> | 来源：<code>https://sijipianku.org.cn
+</code></p><br><br><h3>生物育种产业化政策，转基因种业标的走强</h3><br><p>双汇发展异动拉升2.9%，肉制品盈利边际改善。<br><br> | 来源：<code>https://slghuangyou.com.cn
+</code></p><br><br><h3>全国农村人居环境整治提升，生活垃圾无害化处理率达97%</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>https://smtiaojiao.com.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>https://sports-plat-go.com.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>高股息板块持续受宠：银行、保险、煤炭的配置价值分析。<br><br> | 来源：<code>https://star-tv.com.cn
