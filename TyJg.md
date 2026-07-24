@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>全国水土流失治理面积年度完成6万平方公里，生态修复提速。<br><br> | 来源：<code>https://8x8x8.com.cn
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>长三角一体化发展新规划发布，打造世界级产业集群。<br><br> | 来源：<code>https://8x8x8x.com.cn
+</code></p><br><br><h3>全球光伏装机量突破18亿千瓦，清洁能源普及加速</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://8x8xshuimitao.com.cn
+</code></p><br><br><h3>中芯国际放量拉升7.3%，14nm产能利用率持续提升</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://8x8xzaixianguankanwanzhengban.com.cn
+</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>全国全民健身日活动覆盖超亿人次，群众体育热情高涨。<br><br> | 来源：<code>https://91-baihu.com.cn
+</code></p><br><br><h3>国产科幻电影票房突破50亿元，《流浪地球3》刷新纪录</h3><br><p>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练。<br><br> | 来源：<code>https://91-cc.com.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://91-chengren-zaixian.com.cn
+</code></p><br><br><h3>碳排放权交易市场扩容，碳交易标的全线异动</h3><br><p>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化。<br><br> | 来源：<code>https://91-chigua.com.cn
+</code></p><br><br><h3>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>https://91-chiguawang.com.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>宝钢股份企稳回升，钢铁行业盈利预期边际改善。<br><br> | 来源：<code>https://91-ci-yuan.com.cn
+</code></p><br><br><h3>央行下调MLF利率10BP，货币政策宽松力度加大</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>https://91-ciyuan.com.cn
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>全球区块链产业规模突破万亿美元，Web3.0应用落地加速。<br><br> | 来源：<code>https://91-com.com.cn
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>新疆交建一带一路优势：新疆区域基建的长期成长逻辑</h3><br><p>涪陵榨菜异动拉升3.8%，产品提价传导顺利。<br><br> | 来源：<code>https://91-down.com.cn
+</code></p><br><br><h3>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置</h3><br><p>土耳其经济通胀回落至30%，金融市场逐步稳定。<br><br> | 来源：<code>https://91-guanwang.com.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>北方华创半导体设备订单爆发，单季业绩预增超80%。<br><br> | 来源：<code>https://91-mianfei.com.cn
+</code></p><br><br><h3>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%</h3><br><p>正泰电器放量上涨3.7%，户用光伏装机量领先。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>超150家机构到访工业机器人标的，产能利用率突破90%</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>https://91-mianfeishipin.com.cn
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>北向资金连续加仓东方财富，互联网券商获外资持续流入。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>机构资金联手买入东方电气6200万，能源装备龙头获抱团</h3><br><p>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%。<br><br> | 来源：<code>https://91-mitao.com.cn
