@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分14秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://new-91dongman.com.cn
+</code></p><br><br><h3>乳制品质量升级政策，乳业龙头标的全线异动</h3><br><p>洋河股份异动拉升4.0%，梦之蓝系列动销超预期。<br><br> | 来源：<code>https://new-91mianfei.com.cn
+</code></p><br><br><h3>教育部发布新规，义务教育阶段课后服务实现全覆盖</h3><br><p>外资持续流入中芯国际，半导体龙头持仓占比突破5%。<br><br> | 来源：<code>https://new-91n.com.cn
+</code></p><br><br><h3>全国文旅数字化升级，超500家景区实现AR导览全覆盖</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>https://new-91ncom.com.cn
+</code></p><br><br><h3>晶澳科技全球化运营：光伏组件龙头的海外市场份额扩张</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>https://new-91tv.com.cn
+</code></p><br><br><h3>全国塑料吸管全面替代完成，可降解产品覆盖所有餐饮场景</h3><br><p>中国马术队首次获得亚运会金牌，马术运动实现零的突破。<br><br> | 来源：<code>https://new-91yingshi.com.cn
+</code></p><br><br><h3>华域汽车汽车零部件平台：国内汽车零部件龙头的价值</h3><br><p>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏。<br><br> | 来源：<code>https://new-aifengyue.com.cn
+</code></p><br><br><h3>北方华创涨超6.3%，半导体设备国产替代进度提速</h3><br><p>呼吸道疾病高发，儿科医药板块集体上涨。<br><br> | 来源：<code>https://new-aiye.net.cn
+</code></p><br><br><h3>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增</h3><br><p>超190家机构到访储能电池标的，海外户储订单超预期。<br><br> | 来源：<code>https://new-aqd.org.cn
+</code></p><br><br><h3>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>https://new-aqdlt.org.cn
+</code></p><br><br><h3>机构席位大额买入澜起科技8500万，内存芯片龙头获布局</h3><br><p>中国中车全球轨交布局：一带一路下的海外订单增长逻辑。<br><br> | 来源：<code>https://new-baicai-web.com
+</code></p><br><br><h3>全国重点海域入海排污口整治完成，海洋污染源头管控加强</h3><br><p>中兴通讯算力布局：从通信设备到算力基础设施的拓展。<br><br> | 来源：<code>https://new-baihe.com.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>中际旭创光模块技术优势：全球数通市场的份额扩张。<br><br> | 来源：<code>https://new-baijiang.net.cn
+</code></p><br><br><h3>百亿私募组团调研6G通信企业，技术试验进度超市场预期</h3><br><p>宇通客车全球客车龙头优势：新能源客车的全球份额扩张。<br><br> | 来源：<code>https://new-baleshipin.cn
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献。<br><br> | 来源：<code>https://new-biwei-sports.com.cn
+</code></p><br><br><h3>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://new-bowan-sports.com.cn
+</code></p><br><br><h3>全球光伏装机量突破18亿千瓦，清洁能源普及加速</h3><br><p>全国荒漠化土地面积连续20年缩减，沙化治理成效突出。<br><br> | 来源：<code>https://new-caike-official.com
+</code></p><br><br><h3>春节档票房创历史新高，影视传媒板块集体走强</h3><br><p>吉利汽车新能源占比超50%，前三季度业绩预增超30%。<br><br> | 来源：<code>https://new-caoliu.cn
+</code></p><br><br><h3>大熊猫野生种群数量突破2000只，受威胁等级下调至易危</h3><br><p>长电科技放量上涨4.8%，先进封装订单饱满。<br><br> | 来源：<code>https://new-caoliushequ.cn
+</code></p><br><br><h3>职业教育法实施一周年，新增100所应用型技术大学</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>https://new-chengrenwangzhan.com.cn
