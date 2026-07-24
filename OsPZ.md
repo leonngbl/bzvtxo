@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>泸州老窖国窖批价上行，单季业绩预告超预期</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>https://liangnuyibei.com.cn
+</code></p><br><br><h3>存款利率市场化改革深化，银行负债成本持续优化</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://liaoheishequ.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.8关口，航空板块汇兑收益大幅增加</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>https://liboqiubao.com.cn
+</code></p><br><br><h3>AI实时翻译耳机普及，跨语言沟通障碍彻底打破</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>https://lidongmanfan.com.cn
+</code></p><br><br><h3>神州高铁放量上涨3.7%，轨道交通运维业务增长</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>https://lifandongmanmanhua.org.cn
+</code></p><br><br><h3>万华化学MDI价格反弹，单季业绩预告超预期</h3><br><p>东部地区率先实现高质量发展，人均GDP突破12万元。<br><br> | 来源：<code>https://lifanzaixianmianfei.com.cn
+</code></p><br><br><h3>三一重工突破半年线，中期趋势逐步转强</h3><br><p>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定。<br><br> | 来源：<code>https://limandongman.com.cn
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>国产悬疑小说出海热销，海外读者追捧中国推理故事。<br><br> | 来源：<code>https://lishuanger.com.cn
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>浪潮信息冲高，AI服务器需求维持高增长态势。<br><br> | 来源：<code>https://liuhe-baodian.com.cn
+</code></p><br><br><h3>汽车数据安全管理新规，汽车软件板块集体上涨</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>https://liuhecai-wangzhan.com.cn
+</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>春节档票房创历史新高，影视传媒板块集体走强。<br><br> | 来源：<code>https://liuhecai-ziliao.com.cn
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>知名私募调研量子通信标的，干线网络建设落地节奏披露。<br><br> | 来源：<code>https://liujiaoqin.com.cn
+</code></p><br><br><h3>交控科技异动拉升4.5%，城轨信号系统订单爆发</h3><br><p>海天味业调味品渠道优势：国内调味品龙头的下沉网络。<br><br> | 来源：<code>https://liulanqi91.cn
+</code></p><br><br><h3>机构席位大额买入中国中铁6500万，基建龙头获长线布局</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线。<br><br> | 来源：<code>https://liumang-shipin.com.cn
+</code></p><br><br><h3>头部券商到访调味品龙头，渠道库存去化周期数据披露</h3><br><p>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒。<br><br> | 来源：<code>https://login-kaiyun-pro.com.cn
+</code></p><br><br><h3>降准释放资金超万亿，流动性宽松支撑A股估值抬升</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>https://lou-fengluntan.cn
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%。<br><br> | 来源：<code>https://lou-fengxinxi.cn
+</code></p><br><br><h3>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定</h3><br><p>新增开户数环比大增，互联网券商板块全线走强。<br><br> | 来源：<code>https://lqoax.cn
+</code></p><br><br><h3>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备</h3><br><p>中国船舶涨超4.5%，造船行业订单持续饱满。<br><br> | 来源：<code>https://lu-alu.com.cn
+</code></p><br><br><h3>机构资金集中买入海螺水泥7300万，水泥龙头获机构抱团</h3><br><p>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比。<br><br> | 来源：<code>https://lu-lu-she.com.cn
