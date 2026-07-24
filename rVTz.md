@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分11秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>华友钴业全产业链布局：新能源金属的全球龙头成长路径</h3><br><p>超280家机构到访工业母机龙头，五轴机床量产进度超预期。<br><br> | 来源：<code>https://huangyouwangyeban.org.cn
+</code></p><br><br><h3>德业股份储能逆变器放量，前三季度业绩预增超100%</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>https://huangyouwangyeyouxi.com.cn
+</code></p><br><br><h3>全球跨境直接投资回升至1.5万亿美元，流向绿色产业</h3><br><p>北方华创涨超6.3%，半导体设备国产替代进度提速。<br><br> | 来源：<code>https://huangyouwangzhan.com.cn
+</code></p><br><br><h3>阳光电源放量上涨6.5%，海外逆变器订单爆发</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://huangyouwangzhanfenxiang.com.cn
+</code></p><br><br><h3>时代新材放量上涨4.0%，轨道交通零部件订单高增</h3><br><p>全国高血压患者管理人数突破1亿人，规范管理率达90%。<br><br> | 来源：<code>https://huangyouxi.com.cn
+</code></p><br><br><h3>东方电缆异动拉升5.2%，海缆订单持续落地</h3><br><p>深股通席位单日买入金龙汽车4300万，客车标的获增持。<br><br> | 来源：<code>https://huangyouxiaji.com.cn
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>房贷利率下限进一步放宽，刚需购房成本大幅下降。<br><br> | 来源：<code>https://huangyouxiangji.com.cn
+</code></p><br><br><h3>浪潮信息冲高，AI服务器需求维持高增长态势</h3><br><p>海南自贸港封关运作倒计时，海南本地股全线异动。<br><br> | 来源：<code>https://huangyouxiaoxiong.com.cn
+</code></p><br><br><h3>浙江建投区域基建订单饱满，单季业绩预告超预期</h3><br><p>中国游泳队世锦赛斩获7金，打破3项世界纪录。<br><br> | 来源：<code>https://huangyouxiazai.com.cn
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>中芯国际放量拉升7.3%，14nm产能利用率持续提升。<br><br> | 来源：<code>https://huangyouyouxi.com.cn
+</code></p><br><br><h3>东方盛虹放量上涨3.6%，EVA树脂需求持续向好</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>https://huangyouyouxidaquan.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿。<br><br> | 来源：<code>https://huangyouyouxiku.com.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>多地推出文旅惠民卡，年卡销量破百万撬动百亿消费。<br><br> | 来源：<code>https://huangyouyouxixiazai.com.cn
+</code></p><br><br><h3>天齐锂业债务优化：高负债锂矿龙头的财务健康度改善</h3><br><p>全国水泥行业碳减排技术升级，低碳生产线占比超60%。<br><br> | 来源：<code>https://huangyouzaixianwan.com.cn
+</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>https://huangyouziyuan.com.cn
+</code></p><br><br><h3>亿纬锂能换手率超3%，量能放大下的资金动向解析</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>https://huangyouzuofang.com.cn
+</code></p><br><br><h3>派能科技海外认证优势：户用储能产品的全球准入壁垒</h3><br><p>全国PPI同比由负转正，工业企业盈利预期持续改善。<br><br> | 来源：<code>https://huanleguzuixindizhifabuye.cn
+</code></p><br><br><h3>新能源汽车换电模式推广政策，换电产业链拉升</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>https://huimeili.com.cn
+</code></p><br><br><h3>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志</h3><br><p>全国体育彩票年销量突破5000亿元，公益金助力民生事业。<br><br> | 来源：<code>https://huoyingbenzi.com.cn
+</code></p><br><br><h3>知名私募调研低空飞行器标的，eVTOL适航认证进度披露</h3><br><p>国际油价回落至75美元/桶，地缘冲突溢价逐步消化。<br><br> | 来源：<code>https://huoyingcc.com.cn
