@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>赣粤高速涨超2.3%，江西区域车流量稳步提升</h3><br><p>全国珍稀濒危植物保护名录更新，超千种植物得到有效保护。<br><br> | 来源：<code>https://91-dapian.com.cn
+</code></p><br><br><h3>核电新项目审批重启，核电产业链标的全线拉升</h3><br><p>全国文旅市场监管加强，查处超千家违规经营旅行社。<br><br> | 来源：<code>https://91-down.com.cn
+</code></p><br><br><h3>全国文旅消费投诉量同比下降30%，市场秩序持续优化</h3><br><p>万科A异动，地产链政策宽松预期持续升温。<br><br> | 来源：<code>https://91-guanwang.com.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://91-mianfei.com.cn
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍。<br><br> | 来源：<code>https://91-mianfeiban.com.cn
+</code></p><br><br><h3>中国通号涨超3.4%，高铁信号系统份额领先</h3><br><p>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者。<br><br> | 来源：<code>https://91-mianfeishipin.com.cn
+</code></p><br><br><h3>自驾游市场上半年订单同比增长55%，房车旅行成为新选择</h3><br><p>全国戏曲名家进校园活动覆盖万所学校，传统艺术传承从娃娃抓起。<br><br> | 来源：<code>https://91-mianfeiwang.cn
+</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>全国广场舞大赛总决赛举办，超百万大妈参与线上线下赛事。<br><br> | 来源：<code>https://91-mitao.com.cn
+</code></p><br><br><h3>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨</h3><br><p>全国轮滑锦标赛举办，参赛选手破万年龄跨度覆盖3-70岁。<br><br> | 来源：<code>https://91-n.cn
+</code></p><br><br><h3>智能网联汽车准入试点落地，车路协同标的拉升</h3><br><p>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同。<br><br> | 来源：<code>https://91-n.com.cn
+</code></p><br><br><h3>卓胜微射频芯片积累：消费电子赛道的国产替代机会</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>https://91-shipinwang.com.cn
+</code></p><br><br><h3>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局</h3><br><p>登海种业玉米种子优势：国内玉米种子赛道的龙头价值。<br><br> | 来源：<code>https://91-shipinwangzhan.com.cn
+</code></p><br><br><h3>航发动力放量拉升5.2%，军工发动机订单落地加速</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https://91-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>中非合作论坛新举措落地，千个合作项目集中启动</h3><br><p>中德经贸论坛举办，双方达成百项合作协议。<br><br> | 来源：<code>https://91-tv.com.cn
+</code></p><br><br><h3>中部地区崛起新政策落地，打造先进制造业增长极</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://91-wang.com.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升。<br><br> | 来源：<code>https://91-www.cn
+</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>机构资金净买入宁德时代12亿，核心资产获大资金加仓。<br><br> | 来源：<code>https://91-zaixianguankan.com.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>电源芯片价格上涨7%，模拟芯片板块景气回升。<br><br> | 来源：<code>https://9170-guanfang-jinsha.com
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>全国滑板锦标赛举办，年轻选手展现街头运动活力。<br><br> | 来源：<code>https://9170-jinsha-official.com
+</code></p><br><br><h3>上半年全国社会物流总额同比增长5.6%，物流运行效率提升</h3><br><p>中国电竞战队S13总决赛夺冠，LPL赛区连续三年捧杯。<br><br> | 来源：<code>https://9170-mobile-login.com
