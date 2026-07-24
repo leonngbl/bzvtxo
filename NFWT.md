@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>北向资金单日买入三安光电9000万，LED龙头获外资持续流入。<br><br> | 来源：<code>https://zh-jmcomic.com.cn
+</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>https://zh-jmtt.com.cn
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>https://zh-kan-pian-wangzhan.com.cn
+</code></p><br><br><h3>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>https://zh-koujiao.com.cn
+</code></p><br><br><h3>抽水蓄能电站规划，抽水蓄能板块走强</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://zh-loli.com.cn
+</code></p><br><br><h3>产业资本集中增持元宇宙内容龙头，布局线下体验店扩张</h3><br><p>新希望生猪出栏高增，单季业绩预告环比减亏。<br><br> | 来源：<code>https://zh-lolicon.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>https://zh-lolita.com.cn
+</code></p><br><br><h3>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%</h3><br><p>国家发改委出台促消费20条新政，重点支持汽车家电消费。<br><br> | 来源：<code>https://zh-luanlun.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>全国演出市场线下消费人次破亿，周边产品营收占比提升。<br><br> | 来源：<code>https://zh-luolita.com.cn
+</code></p><br><br><h3>国产网络文学出海市场规模突破40亿美元，全球读者超2亿</h3><br><p>理想汽车家庭用户定位：精准产品定位下的销量爆发逻辑。<br><br> | 来源：<code>https://zh-luotimeinu.com.cn
+</code></p><br><br><h3>平高电气放量上涨4.0%，特高压开关份额提升</h3><br><p>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆。<br><br> | 来源：<code>https://zh-madoushipin.com.cn
+</code></p><br><br><h3>投资是认知的变现：你永远赚不到超出自己认知范围的钱</h3><br><p>存款利率市场化改革深化，银行负债成本持续优化。<br><br> | 来源：<code>https://zh-meiri-dasai.com.cn
+</code></p><br><br><h3>华北高速涨超1.9%，京津冀路网业务稳健</h3><br><p>全国危险废物处置能力突破2亿吨/年，安全处置率100%。<br><br> | 来源：<code>https://zh-mianfeidianying.com.cn
+</code></p><br><br><h3>网络安全政策升级，网安板块集体上涨</h3><br><p>北京中轴线申遗进入冲刺阶段，千年古都风貌全面保护。<br><br> | 来源：<code>https://zh-mitao-yingshi.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>浪潮信息AI服务器产能：国内AI服务器龙头的份额优势。<br><br> | 来源：<code>https://zh-mitaochuanmei.com.cn
+</code></p><br><br><h3>海尔智家高端产品占比提升，单季业绩预告超预期</h3><br><p>北京建工放量上涨3.0%，京津冀基建项目落地加速。<br><br> | 来源：<code>https://zh-mitaoshipin.com.cn
+</code></p><br><br><h3>江淮汽车异动拉升4.7%，与华为合作车型落地加速</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>https://zh-mitaotv.com.cn
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>中国中冶放量上涨2.9%，新能源冶金订单爆发。<br><br> | 来源：<code>https://zh-mitaowangzhan.com.cn
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>实控人邀约收购中药创新药企业，溢价35%发起全面要约。<br><br> | 来源：<code>https://zh-mitaoyingshi.com.cn
+</code></p><br><br><h3>招商银行财富管理优势：零售银行龙头的第二增长曲线</h3><br><p>中国斯诺克选手闯入世锦赛决赛，创亚洲选手最佳战绩。<br><br> | 来源：<code>https://zh-mitaozaixian.com.cn
