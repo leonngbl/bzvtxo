@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国电建绿电运营：新能源电站的长期稳定现金流价值</h3><br><p>产业基金组团调研后集中增持风电轴承龙头，合计投入超4亿。<br><br> | 来源：<code>https://da-xuexiao-hua.com.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>哈尔滨冰雪旅游提前预热，暑期冰雪乐园订单同比增长80%。<br><br> | 来源：<code>https://dafuweng-caipiao-official.com
+</code></p><br><br><h3>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情</h3><br><p>敦煌研究院数字文创营收突破5亿元，千年文化触达年轻群体。<br><br> | 来源：<code>https://daman-guan-web.com
+</code></p><br><br><h3>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://damanguan-app-android.com
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧。<br><br> | 来源：<code>https://danaizi.net.cn
+</code></p><br><br><h3>多地景区推出“一票通”联票，覆盖周边十余景点让利游客</h3><br><p>海尔智家高端化布局：卡萨帝品牌的溢价能力解析。<br><br> | 来源：<code>https://daohang-zh.com.cn
+</code></p><br><br><h3>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑</h3><br><p>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野。<br><br> | 来源：<code>https://daohang91.cn
+</code></p><br><br><h3>全国无偿献血人次突破2000万，临床用血全部来自自愿捐献</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>https://daohangfuli.cn
+</code></p><br><br><h3>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧</h3><br><p>人工智能产业标准落地，AI合规标的全线异动。<br><br> | 来源：<code>https://daohanglanse.com.cn
+</code></p><br><br><h3>中国男子体操队世锦赛团体夺冠，重回世界巅峰</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>https://daohangse.com.cn
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>全球气候变化大会预备会召开，各国提交新减排承诺。<br><br> | 来源：<code>https://daohangxiao.com.cn
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>https://daohangye.com.cn
+</code></p><br><br><h3>上半年出境游人次突破8000万，跨境旅游全面复苏</h3><br><p>万科A核心城市去化超预期，单季业绩预告环比改善。<br><br> | 来源：<code>https://daohangyese.com.cn
+</code></p><br><br><h3>超210家机构到访AI安防龙头，海外政府订单同比大增</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>https://daohangyinse.com.cn
+</code></p><br><br><h3>招商银行财富管理优势：零售银行龙头的第二增长曲线</h3><br><p>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏。<br><br> | 来源：<code>https://daoyiben.com.cn
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>中国中冶冶金工程高增，单季业绩预告超预期。<br><br> | 来源：<code>https://dapianoumei.com.cn
+</code></p><br><br><h3>生猪收储政策启动，养殖板块迎来反弹催化</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>https://dapigu-shipin.com.cn
+</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>尿素价格单月上涨9%，化肥板块迎来产品涨价催化。<br><br> | 来源：<code>https://dapigu.com.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>全国运动康复中心超万家，运动损伤诊疗体系逐步完善。<br><br> | 来源：<code>https://dayanghei.com.cn
+</code></p><br><br><h3>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%</h3><br><p>城市更新行动政策，城市更新板块走强。<br><br> | 来源：<code>https://dianfeng-guoji.com.cn
