@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分16秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发</h3><br><p>卓胜微射频芯片积累：消费电子赛道的国产替代机会。<br><br> | 来源：<code>https://meinushipin-app.com
+</code></p><br><br><h3>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现</h3><br><p>海上风电大基地集中开工，海缆产业链标的上涨。<br><br> | 来源：<code>https://meinushipin.com.cn
+</code></p><br><br><h3>全国研学基地超万家，覆盖所有地级市满足学生实践需求</h3><br><p>万华化学MDI价格反弹，单季业绩预告超预期。<br><br> | 来源：<code>https://meinutuoyifu.com.cn
+</code></p><br><br><h3>宇通客车放量上涨3.8%，海外客车出口数据亮眼</h3><br><p>养老金新进PCB龙头，布局AI服务器硬件赛道。<br><br> | 来源：<code>https://meinuziwei.com.cn
+</code></p><br><br><h3>隆基绿能跳空高开，光伏赛道资金回流迹象明显</h3><br><p>外资持续流入中芯国际，半导体龙头持仓占比突破5%。<br><br> | 来源：<code>https://meinuziwei.net.cn
+</code></p><br><br><h3>外资单日扫货恒瑞医药9亿，创新药龙头外资持仓回升</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://meiri-dasai-yandex-guan-wang.com.cn
+</code></p><br><br><h3>上半年全国城镇新增就业780万人，完成全年目标的70%</h3><br><p>国内大模型产业联盟成立，联合攻关核心技术短板。<br><br> | 来源：<code>https://meiri-dasai-yandex.com.cn
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团。<br><br> | 来源：<code>https://meiri-dasai-zamixian-guankan.com.cn
+</code></p><br><br><h3>特斯拉4680电池量产提速，锂电结构件标的集体上涨</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>https://meiri-dasai.com.cn
+</code></p><br><br><h3>全球人工智能产业规模突破5万亿美元，中美占据主导地位</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>https://meiri-dasaizaixianguankan.com.cn
+</code></p><br><br><h3>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>https://meirihanou.com.cn
+</code></p><br><br><h3>AI翻译工具支持百种语言实时互译，准确率超专业译员</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://mengciyuan.com.cn
+</code></p><br><br><h3>出口退税政策优化，出口导向型标的拉升</h3><br><p>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者。<br><br> | 来源：<code>https://mengnaiaihua.net.cn
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>全球循环经济市场规模突破5万亿美元，资源利用效率提升。<br><br> | 来源：<code>https://mengnandanshengji.net.cn
+</code></p><br><br><h3>全球新能源投资突破2万亿美元，中国占比超40%</h3><br><p>集成电路税收减免政策延长，芯片全板块集体上涨。<br><br> | 来源：<code>https://mengniangbaike.com.cn
+</code></p><br><br><h3>当升科技正极材料海外布局：高镍正极的全球份额扩张</h3><br><p>全国黄土高原水土流失治理率达70%，黄河泥沙含量锐减。<br><br> | 来源：<code>https://mengruoyu.com.cn
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>恒瑞医药出海进展：创新药产品海外授权的价值重估。<br><br> | 来源：<code>https://mi-taoshipin.com.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>阳光电源放量上涨6.5%，海外逆变器订单爆发。<br><br> | 来源：<code>https://mianfei-huangyou.com.cn
+</code></p><br><br><h3>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%</h3><br><p>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局。<br><br> | 来源：<code>https://mianfei-kan-pian.com.cn
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>超230家机构到访工业软件龙头，研发设计软件付费转化率。<br><br> | 来源：<code>https://mianfei-kanpian.com.cn
