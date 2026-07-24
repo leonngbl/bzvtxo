@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国举重队世锦赛打破12项世界纪录，优势项目持续领先</h3><br><p>中国与中东欧国家合作升级，互联互通项目持续落地。<br><br> | 来源：<code>https://guochanzi-pai.com.cn
+</code></p><br><br><h3>上半年全国网上零售额同比增长9.5%，直播电商贡献突出</h3><br><p>镁价单月上涨18%，镁合金板块迎来产品涨价行情。<br><br> | 来源：<code>https://guodongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>https://guuxfa.cn
+</code></p><br><br><h3>天际股份锂电材料业务：传统化工企业的转型成长逻辑</h3><br><p>暑期亲子游订单同比增长45%，研学旅行成为消费新热点。<br><br> | 来源：<code>https://h-youxi.com.cn
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>https://h5-mitaoshipin.com.cn
+</code></p><br><br><h3>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳</h3><br><p>北京君正车载存储优势：汽车电子赛道的高景气受益标的。<br><br> | 来源：<code>https://haideshirenqi.com.cn
+</code></p><br><br><h3>外资单日扫货药明康德18亿，CXO赛道获外资集中流入</h3><br><p>双汇发展肉制品龙头优势：屠宰+肉制品的协同价值。<br><br> | 来源：<code>https://haideshirenqidongman.com.cn
+</code></p><br><br><h3>产业基金大手笔增持国产EDA企业，助力核心技术研发突破</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>https://haijiao-luntan.cn
+</code></p><br><br><h3>东方财富获机构席位净买入4.2亿，互联网券商获资金加仓</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿。<br><br> | 来源：<code>https://haijiao-shequ.com.cn
+</code></p><br><br><h3>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力</h3><br><p>四川路桥一带一路订单落地，前三季度业绩预增超40%。<br><br> | 来源：<code>https://haijiao-wang.com.cn
+</code></p><br><br><h3>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高</h3><br><p>北方华创设备布局：半导体设备全品类覆盖的龙头价值。<br><br> | 来源：<code>https://haijiaoluanlun.com.cn
+</code></p><br><br><h3>粤港澳大湾区一体化发展提速，跨境要素流动更加便捷</h3><br><p>北向资金单日买入伊利股份1.2亿，乳业龙头获外资持续流入。<br><br> | 来源：<code>https://haijiaoshequdizhi.cn
+</code></p><br><br><h3>国际油价回落至75美元/桶，地缘冲突溢价逐步消化</h3><br><p>上海推出“夜生活节”，夜间商户营业额同比增长60%。<br><br> | 来源：<code>https://haijiaoshequluanlun.cn
+</code></p><br><br><h3>知名私募调研量子通信标的，干线网络建设落地节奏披露</h3><br><p>中国女子现代五项队世锦赛夺冠，拿到巴黎奥运入场券。<br><br> | 来源：<code>https://haijiaoshequshipin.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>浙江建投区域基建订单饱满，单季业绩预告超预期。<br><br> | 来源：<code>https://haijiaozuixindizhi.cn
+</code></p><br><br><h3>北向资金连续加仓通威股份，光伏龙头获外资长线布局</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://han-man.cn
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期</h3><br><p>2026年经济运行稳中向好，高质量发展迈出坚实步伐。<br><br> | 来源：<code>https://hanguo-lunlipian.com.cn
+</code></p><br><br><h3>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>https://hanguolunli.com.cn
+</code></p><br><br><h3>降准资金定向支持半导体产业，芯片板块获流动性利好</h3><br><p>钙钛矿光伏组件效率破纪录，新型光伏标的拉升。<br><br> | 来源：<code>https://hanguowang.com.cn
+</code></p><br><br><h3>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎</h3><br><p>全国职业病防治体系完善，劳动者健康权益得到全面保障。<br><br> | 来源：<code>https://hanoumeiri.com.cn
