@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时31分33秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>游戏出海企业登陆创业板，海外流水占比超70%引资金热捧。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>青岛国际啤酒节开幕，首日吸引客流超30万营收破亿</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>宠物食品企业开启新股申购，海外自主品牌占比突破40%</h3><br><p>北向资金连续增持医美耗材龙头，近2月持仓增幅超40%。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>投资是认知的变现：你永远赚不到超出自己认知范围的钱</h3><br><p>阳光电源技术迭代能力：逆变器龙头的全球竞争力。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>海上风电深远海规划，深远海风电板块集体上涨。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>游资知名席位联手买入中微公司1.3亿，刻蚀设备标的追捧</h3><br><p>电力辅助服务市场扩容，储能运营标的全线异动。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>全国游泳冠军赛落幕，多名小将打破全国纪录</h3><br><p>全国公积金贷款政策优化，支持居民合理住房需求。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>智慧矿山标的登陆北交所，煤矿智能化改造订单同比翻倍。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>中国田径队世锦赛斩获3金，男子跳远打破尘封20年纪录</h3><br><p>隆基绿能光伏技术迭代：HPBC+TOPCon的技术领先性。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>主线行情里不要轻易切换赛道：拿住核心标的才能吃到大行情</h3><br><p>海外对冲基金组团调研预制菜龙头，B端渠道扩张节奏披露。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>中部地区崛起新政策落地，打造先进制造业增长极</h3><br><p>百亿私募组团到访人形机器人标的，核心零部件产能引关注。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>进口博览会政策红利，进口贸易板块全线走强</h3><br><p>东方财富放量大涨，券商异动下的人气激活信号。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>北向资金单日净流入120亿，核心资产获外资集中扫货</h3><br><p>全国国民体质达标率达90%，国民身体素质稳步提升。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>结构性降息精准支持制造业，高端制造板块获定向利好。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>中国男子举重队世锦赛打破5项世界纪录，统治力依旧</h3><br><p>北向资金单日净流入120亿，核心资产获外资集中扫货。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风</h3><br><p>全国医保目录新增126种新药，涵盖多款罕见病特效药。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>海尔智家稳步上行，白电行业格局持续优化</h3><br><p>矿产资源勘探政策，地质勘查标的全线异动。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>华为盘古大模型3.0行业版上线，覆盖矿山、气象、金融十大领域</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>新能源金属需求回暖：钴、锂、镍的行情持续性对比</h3><br><p>稀土价格政策调控收储，稀土永磁标的全线拉升。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>海螺水泥涨超3.7%，基建投资增速回暖带动需求</h3><br><p>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼。<br><br> | 来源：<code>www.shutaotc.cn
