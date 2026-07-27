@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>容百科技放量拉升5.5%，高镍正极渗透率持续提升</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>循环经济发展规划，资源回收标的全线拉升</h3><br><p>头部机构组团到访创新药龙头，核心管线临床三期数据披露。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好</h3><br><p>企业贷款利率创历史新低，制造业投资意愿有望回升。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>外资机构集中调研短视频出海标的，海外用户规模破亿</h3><br><p>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>企业贷款利率创历史新低，制造业投资意愿有望回升</h3><br><p>东方财富用户粘性：互联网金融平台的流量沉淀逻辑。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>端侧大模型普及，旗舰手机本地运行70B参数大模型。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>存款利率下调后居民储蓄搬家，A股新增开户数环比大增</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善</h3><br><p>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%</h3><br><p>全国扬子鳄野生种群数量突破2万只，野外放归成效显著。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>高管团队集体调研后集中增持6G通信标的，合计增持超1亿</h3><br><p>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>国铁集团旗下标的异动，铁路改革预期持续升温</h3><br><p>浪潮信息放量上涨7.4%，AI服务器出货量超预期。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>西藏暑期游热度创新高，进藏游客人次同比增长130%</h3><br><p>中芯国际管理层优势：半导体制造龙头的经营效率提升。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>国产音乐综艺全网播放量突破200亿，原创音乐人才涌现</h3><br><p>5年期LPR下调后地产链情绪回暖，地产服务板块集体上涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>社保基金现身工业AI龙头调研，行业渗透率数据首次公开</h3><br><p>国产动画电影票房上半年突破80亿元，国漫IP影响力扩大。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>德业股份异动拉升6.8%，储能逆变器盈利超预期。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>上海建工城市更新布局：上海本地基建龙头的区域优势</h3><br><p>国产历史剧细节考究，多部作品成为全网热议文化现象。<br><br> | 来源：<code>www.www.bbca.com.cn
