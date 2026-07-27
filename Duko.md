@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分34秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛</h3><br><p>钯价连续上涨9%，汽车尾气催化板块盈利改善。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国居民人均住房建筑面积达42平方米，居住条件持续改善</h3><br><p>全国生态环境监测网络全覆盖，实时数据向公众开放。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>游资知名席位联手买入赛力斯1.4亿，整车标的获资金追捧</h3><br><p>乳制品价格小幅上调，乳业龙头盈利边际改善。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>数字中国建设新规划，数字经济标的集体异动</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>醋产品价格上调6%，食醋板块盈利改善。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>城中村改造专项政策，城中村改造标的全线异动</h3><br><p>全国城市建筑垃圾资源化利用率达70%，变废为宝生产建材。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发</h3><br><p>龙江交通放量上涨1.8%，东北区域车流量边际改善。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>接受市场的不完美：不要试图精准抄底逃顶，赚自己认知内的钱。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>海康威视AI转型：从安防龙头到AIoT巨头的成长路径</h3><br><p>国产EDA龙头登陆科创板，核心技术打破海外垄断引市场关注。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>自由贸易试验区扩围，自贸港本地股异动</h3><br><p>跨境电商综合试验区扩容，跨境物流板块集体上涨。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>外资资管集中调研元宇宙内容龙头，线下体验店扩张节奏</h3><br><p>网易有道教育大模型落地，AI个性化学习系统覆盖千万学生。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>液态奶价格上涨3%，乳制品板块迎来涨价催化</h3><br><p>腾讯云大模型生态开放，接入超十万第三方应用。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>充电桩下乡政策落地，充电桩产业链标的走强</h3><br><p>温氏股份管理优化：养殖行业底部的经营效率提升逻辑。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>基金公司集体到访液冷技术龙头，AI数据中心液冷订单爆发</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>上半年全国铁路固定资产投资完成4500亿元，基建稳步推进</h3><br><p>国内AI算力租赁市场规模破千亿，中小企业轻松获取算力。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>全球5G用户突破30亿，中国市场占比超一半</h3><br><p>国内大模型国际标准制定话语权提升，主导十余项国际标准。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>中国平安权重护盘，大金融板块托底A股指数</h3><br><p>葡萄牙经济增速达2.3%，旅游业持续拉动增长。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，冰上项目实力稳固</h3><br><p>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>AI数字人直播常态化，超十万直播间启用AI虚拟主播</h3><br><p>赣锋锂业放量上涨，固态电池技术落地加速。<br><br> | 来源：<code>www.fjzp.net
