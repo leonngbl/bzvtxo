@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>万科A地产行业格局：龙头房企的抗风险能力与复苏空间</h3><br><p>短视频文旅内容播放量上半年突破5万亿次，种草效应带动目的地流量。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>券商研究所扎堆调研车载雷达标的，激光雷达量产交付节奏</h3><br><p>机构专用席位净买入许继电气5800万，特高压龙头获加仓。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>文旅部推出100条乡村精品线路，带动县域文旅消费</h3><br><p>中国铁建全球工程布局：轨交基建龙头的海外市场拓展。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>快递行业监管优化，快递龙头标的全线拉升</h3><br><p>建筑节能改造政策，绿色建筑板块集体上涨。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>头部券商到访家电出海龙头，海外自主品牌占比突破40%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化</h3><br><p>核电新项目审批重启，核电产业链标的全线拉升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>上半年全国汽车出口突破230万辆，连续3年位居全球第一</h3><br><p>海康威视AI转型：从安防龙头到AIoT巨头的成长路径。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位</h3><br><p>全国绿证交易规模突破1亿个，覆盖超20个高耗能行业。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>深股通席位单日买入金龙汽车4300万，客车标的获增持</h3><br><p>大北农种业业务放量，前三季度业绩预增超55%。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>山东高速放量上涨2.7%，路网资产盈利稳健。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>QFII集中调研医药流通龙头，院外市场拓展节奏披露</h3><br><p>全国数字经济规模上半年达32万亿元，同比增长10.2%。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>东方雨虹建材需求回暖，前三季度业绩预增超25%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>央行宣布定向降准1个百分点，精准支持普惠金融领域</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>NBA总决赛凯尔特人4-2夺冠，塔图姆全票当选FMVP</h3><br><p>加拿大经济保持增长，能源和科技产业双驱动。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>外资持续流入北方稀土，稀土龙头外资持仓占比突破2.5%</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>双汇发展肉制品盈利修复，前三季度业绩预增超20%。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>全国居民平均每日运动时长超1小时，运动习惯逐步养成</h3><br><p>北向资金连续增持液冷技术龙头，AI数据中心需求获外资加仓。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>美联储降息周期开启，黄金珠宝板块迎来趋势性行情</h3><br><p>酸奶产品价格上调4%，乳业细分板块盈利提升。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>中国中车全球轨道交通布局：一带一路带来的增量空间</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>www.jieruit.com
