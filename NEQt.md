@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>全国二手车交易量上半年突破1000万辆，流通市场活跃</h3><br><p>全国亚洲象种群数量突破350只，人象和谐共生格局形成。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>国内大模型性能榜单更新，国产模型多项指标超越国际竞品</h3><br><p>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>招商银行零售银行优势：国内零售银行龙头的经营质量</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>京沪高铁涨超2.9%，暑运客流数据超预期</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>全国糖尿病患者规范管理人数超8000万，并发症发生率下降</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>6G技术研发加速：通信设备、射频器件的布局窗口</h3><br><p>全国红树林面积增至3万公顷，成为海洋生态保护标杆。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>休闲食品开启涨价潮，食品加工板块盈利弹性释放</h3><br><p>种业振兴行动方案落地，种业标的全线异动。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>国际金价创历史新高，黄金珠宝标的集体上涨。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>锂价连续反弹15%，锂矿板块迎来趋势性行情启动</h3><br><p>产业基金大手笔增持国产EDA企业，助力核心技术研发突破。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>中航沈飞军机订单饱满，单季业绩预告超预期</h3><br><p>大模型在能源领域应用，电网调度效率提升25%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>风控永远放在第一位：先保住本金，再谈盈利空间。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>CBA联赛总决赛收视率创新高，本土球员表现亮眼</h3><br><p>长安汽车放量上涨4.9%，深蓝品牌月销破3万。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>派能科技海外认证优势：户用储能产品的全球准入壁垒</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>张家界暑期游客量突破300万人次，山岳旅游热度攀升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值</h3><br><p>地方国资战略入股数据要素龙头，持股比例达12%成第二大股东。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>长电科技先进封装技术：全球封测龙头的份额提升逻辑</h3><br><p>西部大开发新十年规划发布，补齐区域发展短板。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>中兴通讯算力业务爆发，单季净利润同比增80%</h3><br><p>储能行业需求爆发：产业链上下游的景气度传导逻辑。<br><br> | 来源：<code>www.79lr.com
