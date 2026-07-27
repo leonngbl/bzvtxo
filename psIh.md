@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分21秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放</h3><br><p>平遥古城暑期游客量突破150万人次，晋商文化体验游火热。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>华为星闪技术大规模商用，相关产业链标的领涨</h3><br><p>全国塑料吸管全面替代完成，可降解产品覆盖所有餐饮场景。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中国男子皮划艇队世锦赛夺冠，静水项目实现金牌零突破</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>大模型安全国家标准发布，行业合规发展有章可循</h3><br><p>全国居民平均每日运动时长超1小时，运动习惯逐步养成。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>宁夏沙坡头暑期沙漠游热度高，日均接待游客超3万人次</h3><br><p>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风</h3><br><p>上海自贸区扩区方案落地，引领更高水平对外开放。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>全国国家公园数量增至15个，保护面积超23万平方公里。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>多地推出夜间文旅补贴，商户夜间经营成本下降30%</h3><br><p>国内动漫文旅融合项目爆发，动漫主题乐园暑期营收破百亿。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>平高电气特高压开关技术：输配电设备龙头的国产替代</h3><br><p>机器人赛道持续升温：核心零部件、整机制造的投资机会。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>航发动力技术壁垒：航空发动机国产替代的核心路径</h3><br><p>中兴通讯算力布局：从通信设备到算力基础设施的拓展。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>阿里云通义千问算力集群扩容，支撑万亿级参数大模型训练</h3><br><p>中国象棋队世锦赛全部夺冠，传统棋类运动长盛不衰。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>银保监会出台新政，进一步降低实体经济融资成本</h3><br><p>西部大开发新十年规划发布，补齐区域发展短板。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>洋河股份异动拉升4.0%，梦之蓝系列动销超预期</h3><br><p>卫星互联网频率分配落地，卫星制造板块集体上涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国中华白海豚种群数量突破5000头，近海生态持续改善</h3><br><p>全国青少年篮球联赛参赛人数破百万，校园篮球氛围火爆。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>自动驾驶大模型落地，城市NOA覆盖全国所有城市道路</h3><br><p>长江经济带发展成效显著，生态优先绿色发展格局形成。<br><br> | 来源：<code>www.hnltjy.com
