@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>6G技术研发加速：通信设备、射频器件的布局窗口。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>大模型在新闻领域应用，AI生成快讯占比超60%</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>中国女篮亚洲杯夺冠，时隔12年重登亚洲之巅</h3><br><p>一带一路订单释放：中字头基建的估值重塑空间解析。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>机器人产业发展规划发布，人形机器人板块集体上涨</h3><br><p>字节跳动豆包大模型企业版发布，百万企业开启AI办公升级。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>恒瑞医药创新药放量，前三季度业绩预增超40%。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>中国神华煤炭量价齐升，前三季度业绩预增超15%。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>首套房贷款利率突破3%关口，地产销售边际回暖信号显现</h3><br><p>东方电气放量上涨4.1%，风电设备订单饱满。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>磷酸铁锂价格连续上涨7%，动力电池材料环节回暖</h3><br><p>控股股东耗资4亿增持算力租赁标的，回购注销增厚每股收益。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>电感产品价格上涨3%，电子全产业链盈利优化</h3><br><p>北向资金连续加仓海康威视，AI安防龙头获外资持续布局。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>降准释放资金定向支持基建，基建板块迎来流动性利好</h3><br><p>量子信息产业规划发布，量子通信标的全线拉升。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期</h3><br><p>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>外资单日扫货海尔智家8亿，白电龙头外资持仓稳步提升</h3><br><p>紫金矿业创阶段新高，黄金有色板块沿趋势上行。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>欧盟第21轮对俄制裁方案通过，覆盖能源、金融多领域</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>美联储降息后美债收益率下行，外资回流中国权益市场</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>阳光电源涨超7%，逆变器海外订单持续超预期</h3><br><p>全国校园足球特色校破2万，青少年足球人才储备加厚。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>比亚迪垂直整合优势：供应链自主可控下的抗风险能力。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>全国县域旅游百强县榜单发布，江浙地区占比超六成</h3><br><p>私募基金仓位创年内新高，私募重仓标的上涨。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>纯碱价格连续上涨12%，玻璃产业链成本端压力边际缓解</h3><br><p>服务贸易创新发展试点，服务贸易板块集体上涨。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>中际旭创再创阶段新高，趋势加速下的持仓策略</h3><br><p>黄金价格创历史新高，黄金珠宝板块盈利弹性释放。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入</h3><br><p>低空旅游市场爆发，上半年直升机观光订单同比增长200%。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>全国马拉松赛事超500场，全年参赛人次破700万</h3><br><p>全国会展经济快速复苏，上半年展览场次同比增长45%。<br><br> | 来源：<code>www.www.gmgs.com.cn
