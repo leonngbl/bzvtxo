@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国篮球联赛NBL总决赛落幕，陕西队时隔5年再度夺冠</h3><br><p>中超联赛场均上座人数突破2.5万，球市全面回暖。<br><br> | 来源：<code>https://go-kaiyun-hub.com.cn
+</code></p><br><br><h3>全面降准0.5个百分点，银行信贷投放能力大幅提升</h3><br><p>三星堆新出土文物超千件，古蜀文明研究取得重大突破。<br><br> | 来源：<code>https://go-mitaoshipin.com.cn
+</code></p><br><br><h3>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>https://go-mogushipin.com.cn
+</code></p><br><br><h3>美联储降息预期升温，全球权益资产联动走强</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>https://gongce-by-zhu-xiang-bi-qu-ge-zuixin-zhangjie.com.cn
+</code></p><br><br><h3>国内入境游人次上半年破8000万，国际游客消费能力提升</h3><br><p>降准释放长期资金支持新能源，绿电板块迎来定向利好。<br><br> | 来源：<code>https://goutouluoli.com.cn
+</code></p><br><br><h3>亿纬锂能储能订单爆发，前三季度业绩预增90%</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>https://goutouluolishipin.com.cn
+</code></p><br><br><h3>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健</h3><br><p>全国居民储蓄存款增速放缓，资金向消费和投资领域转移。<br><br> | 来源：<code>https://gpian.net.cn
+</code></p><br><br><h3>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速</h3><br><p>外资单日扫货阳光电源15亿，逆变器龙头外资持仓创新高。<br><br> | 来源：<code>https://guess-worldcup-win.com
+</code></p><br><br><h3>德业股份储能逆变器放量，前三季度业绩预增超100%</h3><br><p>欧元区经济走出衰退，二季度GDP环比增长0.3%。<br><br> | 来源：<code>https://guhejun.cn
+</code></p><br><br><h3>知名私募调研钠电池龙头，量产线投产时间点首次公开</h3><br><p>上海建工涨超2.6%，长三角基建订单回暖。<br><br> | 来源：<code>https://guiruhougong.com.cn
+</code></p><br><br><h3>首套房贷款利率突破2.9%，刚需购房成本创历史新低</h3><br><p>国足世预赛客场2-1逆转日本，创造历史首次客场击败对手。<br><br> | 来源：<code>https://guo-mo-bai-lu.com.cn
+</code></p><br><br><h3>控股股东耗资5亿大手笔增持AI算力龙头，彰显长期发展信心</h3><br><p>东方财富涨超7.1%，基金代销业务环比改善。<br><br> | 来源：<code>https://guochan-chengren-dianying.com.cn
+</code></p><br><br><h3>数据要素政策落地，数据确权板块全线上涨</h3><br><p>天齐锂业锂矿资源储备：全球锂矿龙头的资源禀赋优势。<br><br> | 来源：<code>https://guochan-chuanmei.com.cn
+</code></p><br><br><h3>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越</h3><br><p>国内AI算力规模突破50EFLOPS，稳居全球第二。<br><br> | 来源：<code>https://guochan-jingpin-shipin.com.cn
+</code></p><br><br><h3>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆</h3><br><p>降准降息组合拳落地，大金融板块率先迎来行情催化。<br><br> | 来源：<code>https://guochan-jingpin.cn
+</code></p><br><br><h3>全球跨境旅游人次上半年突破7亿，旅游业全面复苏</h3><br><p>德业股份储能逆变器放量，前三季度业绩预增超100%。<br><br> | 来源：<code>https://guochan-shipin.cn
+</code></p><br><br><h3>两融余额创阶段新高，券商杠杆业务标的异动</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>https://guochan-shipin.com.cn
+</code></p><br><br><h3>存款利率下调推动理财收益率下行，权益基金发行回暖</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>https://guochan-shipinzaixianguankan.com.cn
+</code></p><br><br><h3>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%</h3><br><p>中国中车异动拉升，低位补涨行情的参与思路。<br><br> | 来源：<code>https://guochan-yiqu.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善。<br><br> | 来源：<code>https://guochan-yiqu.com.cn
