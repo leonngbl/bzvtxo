@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>新能源金属需求回暖：钴、锂、镍的行情持续性对比</h3><br><p>国内民宿市场规模破万亿，精品民宿均价同比上涨20%。<br><br> | 来源：<code>https://1996-zhicheng-guoji.com
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>https://2026worldcup-guanwang-vip.com
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>铜版纸价格单月上涨7%，造纸细分板块迎来行情。<br><br> | 来源：<code>https://2121-feifan-entry.com
+</code></p><br><br><h3>全面降准0.5个百分点，银行信贷投放能力大幅提升</h3><br><p>10年期国债收益率下行至历史低位，高股息资产配置价值凸显。<br><br> | 来源：<code>https://2121-feifan-official.com
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>先导智能跳空高开6.1%，锂电设备海外订单爆发。<br><br> | 来源：<code>https://2pg-login-reg.com
+</code></p><br><br><h3>国内AI安全技术突破，大模型内容风控拦截率达99.9%</h3><br><p>社保基金现身半导体材料龙头，国产替代率突破70%。<br><br> | 来源：<code>https://3dshipin.com.cn
+</code></p><br><br><h3>全国生态环境监测网络全覆盖，实时数据向公众开放</h3><br><p>科技成长行情延续：AI算力、半导体、光模块的景气度排序。<br><br> | 来源：<code>https://432-yinghuang-app.com
+</code></p><br><br><h3>储能装机强制配比政策升级，储能产业链标的拉升</h3><br><p>比亚迪全产业链布局分析：从电池到整车的协同优势。<br><br> | 来源：<code>https://4688tv.com.cn
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>https://51-anwang.com.cn
+</code></p><br><br><h3>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>https://512vip-kaiyuan-official.com
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>招商银行零售银行优势：高ROE背后的经营质量解析。<br><br> | 来源：<code>https://51chi-guawang.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>通用人工智能创新平台落地，大模型标的拉升。<br><br> | 来源：<code>https://51chiguayuming.com.cn
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>伊利股份乳制品量价齐升，前三季度业绩预增超20%。<br><br> | 来源：<code>https://51dashijian.com.cn
+</code></p><br><br><h3>存量房贷利率下调后居民消费回升，旅游酒店板块受益</h3><br><p>阳光电源跳空高开，缺口支撑下的短期趋势判断。<br><br> | 来源：<code>https://51hei-liao.com.cn
+</code></p><br><br><h3>全国城市建成区绿化覆盖率达42%，人均公园绿地面积15平方米</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://52-pojie.com.cn
+</code></p><br><br><h3>全国城市污水处理率达98%，污泥无害化处理率超90%</h3><br><p>全国足球场数量超20万个，人均足球场地面积达1.8平方米。<br><br> | 来源：<code>https://52662-dingsheng-official.com
+</code></p><br><br><h3>紫光国微异动拉升5.6%，特种芯片需求持续高增</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>https://6686-online-login.com
+</code></p><br><br><h3>嫦娥探月工程新任务，航天科技产业链迎来催化</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>https://728-android-old.com
+</code></p><br><br><h3>全国祁连山生态保护修复完成，矿区全部恢复植被覆盖</h3><br><p>大股东承诺6个月内不减持氢能标的，释放稳定股价信号。<br><br> | 来源：<code>https://800-quanxun-baicai.com
+</code></p><br><br><h3>中俄双边贸易额上半年突破1200亿美元，创历史新高</h3><br><p>中国男子射箭队世锦赛团体夺冠，打破韩国长期垄断。<br><br> | 来源：<code>https://8268-caipiao-official.com
