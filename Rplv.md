@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人</h3><br><p>国际油价回落至75美元/桶，地缘冲突溢价逐步消化。<br><br> | 来源：<code>https://91dizhiyongjiurukou.com.cn
+</code></p><br><br><h3>游资顶级席位联手买入天齐锂业3亿，锂矿龙头获资金追捧</h3><br><p>保障性住房建设规划，保障房产业链集体上涨。<br><br> | 来源：<code>https://91dongman.cn
+</code></p><br><br><h3>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势</h3><br><p>工业母机龙头登陆北交所，五轴机床市占率国内第一。<br><br> | 来源：<code>https://91guochan.com.cn
+</code></p><br><br><h3>全国全民健身日活动启动，全国超万场赛事覆盖千万群众</h3><br><p>铅价上涨7%，铅酸电池板块盈利边际改善。<br><br> | 来源：<code>https://91heiliaochigua.com.cn
+</code></p><br><br><h3>燃料电池汽车示范应用，燃料电池标的全线异动</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>https://91huangpian.cn
+</code></p><br><br><h3>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入</h3><br><p>三元正极材料价格上调6%，锂电材料产业链景气回升。<br><br> | 来源：<code>https://91kanpianwangzhanzaixianguankan.com.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>普惠小微贷款利率进一步下行，中小微企业盈利改善。<br><br> | 来源：<code>https://91kanwangyeban.cn
+</code></p><br><br><h3>五粮液中秋动销超预期，单季业绩预告超预期</h3><br><p>全国地热能源开发利用规模突破5000万吨标准煤。<br><br> | 来源：<code>https://91kanwangyeban.com.cn
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>中国飞镖队亚运会夺得奖牌，小众运动逐步走进大众视野。<br><br> | 来源：<code>https://91kuaihuolin.cn
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>陕西建工异动拉升3.5%，西北基建订单持续落地。<br><br> | 来源：<code>https://91liulanqi.cn
+</code></p><br><br><h3>全国儿童疫苗接种率保持99%以上，传染病发病率降至历史最低</h3><br><p>NBA季后赛中国球员首次夺冠，创造亚洲篮球历史。<br><br> | 来源：<code>https://91liulanqi.com.cn
+</code></p><br><br><h3>三安光电涨超4.2%，LED芯片需求边际改善</h3><br><p>MCU芯片价格单月上涨8%，汽车半导体板块盈利改善。<br><br> | 来源：<code>https://91liulanqiwangye.com.cn
+</code></p><br><br><h3>证监会出台资本市场提质新政，鼓励上市公司加大分红比例</h3><br><p>全国居民储蓄存款增速放缓，资金向消费和投资领域转移。<br><br> | 来源：<code>https://91manhua.cn
+</code></p><br><br><h3>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性</h3><br><p>中国女子跆拳道队世锦赛斩获4金，奥运备战状态出色。<br><br> | 来源：<code>https://91manhua.com.cn
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>欧元区经济走出衰退，二季度GDP环比增长0.3%。<br><br> | 来源：<code>https://91mianfeiban.com.cn
+</code></p><br><br><h3>国内大模型产业联盟成立，联合攻关核心技术短板</h3><br><p>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求。<br><br> | 来源：<code>https://91n-com.com.cn
+</code></p><br><br><h3>钛白粉开启新一轮涨价潮，全行业提价覆盖海内外市场</h3><br><p>通用航空机场建设规划，通航运营板块集体上涨。<br><br> | 来源：<code>https://91ncc.com.cn
+</code></p><br><br><h3>全国文化和旅游消费试点城市扩围，打造百个消费标杆城市</h3><br><p>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密。<br><br> | 来源：<code>https://91ncn.com.cn
+</code></p><br><br><h3>俄乌冲突交换战俘达成协议，千名被俘人员获释</h3><br><p>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红。<br><br> | 来源：<code>https://91ncom.cn
+</code></p><br><br><h3>国内剧本杀文旅项目破千个，沉浸式文旅体验成新风口</h3><br><p>政策性银行加大降息力度，基建项目融资成本大幅下降。<br><br> | 来源：<code>https://91ncom.com.cn
